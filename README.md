@@ -1,3 +1,5 @@
-# KingOfPortugal
+# KingOfPortugal #
 
 Between 1320 and 1324 there was a civil war that pitted the king against the future Alfonso IV. The latter believed that his father intended to give the throne to Afonso Sanches. In this war, the king had little popular support, as in the last years of his reign he gave great privileges to the nobles. The Infante had the support of the councils. Despite the reasons for the revolt, this war was at the bottom a conflict between large and small. After his death, in 1325, he was succeeded by his legitimate son, Afonso IV, despite opposition from his favorite, natural son Afonso Sanches.![image](https://user-images.githubusercontent.com/92513489/137286038-082cb5d9-6a39-4f4a-b4f9-76d411dca29e.png)
+
+As heir to the crown, Denis was involved early on in aspects of governance by his father, Alfonso III, who on February 16, 1279, leaves a kingdom with marked internal stability, resulting from an uncontested royal authority, in contrast to the state the kingdom of Castile, where prevailed an accentuated climate of ungovernability and permanent social conflicts.![image](https://user-images.githubusercontent.com/92513489/137286081-5c1bd977-b2ab-4083-a4b7-9b425e7df2df.png)
